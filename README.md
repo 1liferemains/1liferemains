@@ -1,16 +1,43 @@
-## Hi there 👋
+## what's up homie buddah
 
-<!--
-**1liferemains/1liferemains** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⠀
 
-Here are some ideas to get you started:
+i adore **jimmy solidarity** and **impulsesv** atm!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀
+
+![lalalla](https://files.catbox.moe/ydsmw3.png)
+
+⠀
+
+what's up! i'm **finn or pt dn/fronter name**
+
+collectively use he/she, otherwise ask
+
+osdd-1b system, autism, adhd! be patient
+
+i **LOVE** hermitcraft and adjacent medias,
+
+as well as the crane wives and yaelokre
+
+⠀
+
+**PLEASE** feel free to friend rq me on pt!
+
+c+h always okay! w2i most of the time 
+
+(i exist a lot offtab or on disc LMAO).
+
+⠀
+
+my discord @ is **1liferemains**! feel
+
+free to dm or frq on there as well :-3
+
+⠀
+
+i don't really have a **dni**, i will
+
+block or ignore you if i am
+
+uncomfortable or dislike you!
