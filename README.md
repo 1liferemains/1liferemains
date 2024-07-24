@@ -35,6 +35,12 @@ free to dm or frq on there as well :-3
 
 i don't really have a **dni**, i will
 
-block or ignore you if i am
+just block you or ignore/hide you if i am
 
-uncomfortable or dislike you!
+uncomfortable or dislike interacting w/ you!
+
+(that being said, however, **-phobics and -isms**
+
+(homophobes, rascists, etc) please **refrain** from 
+
+interacting with me or my page lol).
