@@ -1,8 +1,5 @@
-## what's up homie buddah
-
-⠀
-
-i adore **jimmy solidarity** and **impulsesv** atm!
+# what's up homie buddah
+### i adore jimmy solidarity and impulsesv atm!
 
 ⠀
 
