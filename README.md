@@ -1,7 +1,6 @@
 # what's up homie buddah
 ### i adore jimmy solidarity and impulsesv atm!
-please read my bundlrs.cc (linked in profile)
-
+please read my bundlrs and pronouns.cc
 ⠀
 
 ![lalalla](https://files.catbox.moe/ydsmw3.png)
